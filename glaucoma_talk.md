@@ -1,3 +1,4 @@
+Ссылка на слайды:
 https://docs.google.com/presentation/d/1XZVHzeWSA8RjYWpvuU8eRMqwAUqUJ9luesNn1MK9yZY/edit?usp=sharing
 
 ## 1
